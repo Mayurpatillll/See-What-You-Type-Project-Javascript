@@ -17,7 +17,7 @@
 ## 🔗Live Link -: [See What You Type Using Javascript ](https://mayurpatillll.github.io/See-What-You-Type-Project-Javascript)
 
 
-## Connect With Me
+## My Social Handles 
 
  * [Instagram ](https://www.instagram.com/iam.mayurpatil/)
  * [Website ](https://mayurpatil.online)
